@@ -1,3 +1,6 @@
 # best-repo-ever
-123
-.
+1234567890'
+qwertyuiop
+asdfghjklñ
+zxcvbnm,.
+-
